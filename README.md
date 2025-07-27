@@ -1,1 +1,1 @@
-<img width="917" height="578" alt="Screenshot 2025-07-27 161933" src="https://github.com/user-attachments/assets/604c7147-7b49-42bc-91a5-d2faa00d2ec6" />
+https://media.licdn.com/dms/image/v2/D4D22AQEYdD08TiZSwQ/feedshare-shrink_800/feedshare-shrink_800/0/1720022444513?e=1756339200&v=beta&t=ucgL-kaWApDCTUnHlFwQzQ-pqx7BEvRkZC15WC0XOj0
